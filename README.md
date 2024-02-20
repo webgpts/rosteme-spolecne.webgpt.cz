@@ -1,0 +1,1 @@
+# rosteme-spolecne.webgpt.cz
